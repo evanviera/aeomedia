@@ -1,2 +1,2 @@
 # aeomedia
-first webpage, circa 97?
+first webpage, circa 98-99.
